@@ -1,5 +1,5 @@
 Hello I am Martin From Hynx.
-My Whatsapp Number is +44 7497 245040
+My Whatsapp Number is +44 7497 245040. Please kindly message me if you are using Whatsapp more flexible. Thank you.
 
 <!---
 yolodevai/yolodevai is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
